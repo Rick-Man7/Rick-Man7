@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Rick-Man7
+- 👀 I’m interested in ...me interesa la programación
